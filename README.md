@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning Software Engineering
 - 📫 How to reach me ✨ ramithamainframe@gmail.com✨
 - ✨ Ask me whatsapp - ✨ +94 71 429 8100✨
+- https://rav391.wordpress.com/  sample work
 
 
 <!---
